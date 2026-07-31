@@ -18,6 +18,6 @@
 
 ## My links
 
-<img align="left" alt="TG" width="29px" src="https://cdn.icon-icons.com/icons2/2108/PNG/512/telegram_icon_130816.png" /> @MacIT77
+<img align="left" alt="TG" width="29px" src="https://cdn.icon-icons.com/icons2/2108/PNG/512/telegram_icon_130816.png" /> @MacIT777
 
 <img align="left" alt="VK" width="35px" src="https://pngicon.ru/file/uploads/vk.png" /> https://vk.com/macit77
